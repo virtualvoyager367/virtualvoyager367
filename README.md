@@ -1,2 +1,3 @@
-- 👋 Hi, I’m @virtualvoyager367
+- 👋 Hi, I’m @virtualvoyager367, I focus on Making Duckyscipt Files, Adguard Blocklists, etc
+- My Channel has other things like Gaming and Minecraft Mods
 - 📫 Email to reach me: VirtualVoyager367@gmail.com
